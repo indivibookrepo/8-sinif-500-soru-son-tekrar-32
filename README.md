@@ -1,0 +1,1 @@
+# 8-sinif-500-soru-son-tekrar-32
